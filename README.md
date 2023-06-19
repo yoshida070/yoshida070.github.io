@@ -1,1 +1,0 @@
-# yoshida070.github.io
